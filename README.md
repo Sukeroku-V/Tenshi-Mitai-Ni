@@ -1,1 +1,1 @@
-Art kissing logic on the forhead.
+Art kissing Logic on the forhead.
