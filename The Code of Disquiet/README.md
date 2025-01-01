@@ -1,0 +1,1 @@
+For a long time now I haven't existed. I'm utterly calm. No one distinguishes me from who I am. I just felt myself breath as if I'd done something new, or done it late. I'm beginning to be conscious of being conscious. Perhaps tomorrow I will wake up to myself and resume the course of my existence. I don't know if that will make more happy or less. I don't know anything.
